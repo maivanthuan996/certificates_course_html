@@ -1,1 +1,0 @@
-# certificates_course_html
